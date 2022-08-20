@@ -1,1 +1,1 @@
-https://seulink.net/3HGr https://seulink.net/ESnVpj6ZDU https://seulink.net/jnLQcBj4
+OS VÍDEOS SÃO FEITOS DE FORMA EDUCACIONAL E NÃO TEM COMO OBJETIVO QUALQUER ATO QUE POSSA TRAZER DANOS A TERCEIROS!!! https://seulink.net/3HGr https://seulink.net/ESnVpj6ZDU https://seulink.net/jnLQcBj4
